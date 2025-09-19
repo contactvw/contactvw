@@ -18,12 +18,6 @@ Our platform specializes in providing official Certificates of Conformity for ve
 2. **Verification:** Our team verifies your information and processes your request.
 3. **Delivery:** Receive your official COC by email and, if required, by post.
 
-## 📈 Why Choose Us?
-
-- Trusted by individuals and dealerships across Europe
-- Simple, transparent pricing
-- Multilingual support
-
 ---
 
 For more information, visit our website or contact our support team.  
