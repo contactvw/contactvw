@@ -1,6 +1,6 @@
-# Certificate of Conformity (COC) Vehicle Services
+# Certificate of Conformity Services
 
-Welcome to **Certificate of Conformity (COC) Vehicle Services**! 🚗
+Welcome to **Certificate of Conformity Services (COC)**! 🚗
 
 Our platform specializes in providing official Certificates of Conformity for vehicles, ensuring smooth and compliant registration processes across Europe. Whether you are importing, exporting, or registering a vehicle, our streamlined services make obtaining your COC fast, simple, and secure.
 
